@@ -1,5 +1,6 @@
 KLONDIKE ADVENTURES CHEATS ENERGY MOD APK THAT WORK 2021
-~~~~~~~~~~~UPDATED: 28-09-2021|{ONLINE USERS:6592}
+~~~~~~~~~~~
+UPDATED: 28-09-2021|{ONLINE USERS:6592}
 
 You are finding Klondike Adventures cheats unlimited energy 2021 or mod apk, you can use the latest versions below
 
