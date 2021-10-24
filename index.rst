@@ -4,7 +4,7 @@ UPDATED: 08-10-2021|{ONLINE USERS:6592}
 
 Why do they play pro games ? You are finding Klondike Adventures cheats unlimited energy 2021 or mod apk, you can use the latest versions below
 
-`CLICK HERE TO GET KLONDIKE ADVENTURES ENERGY CHEATS NOW. <https://goodfile.cc/cf2381b>`__
+`CLICK HERE TO GET KLONDIKE ADVENTURES ENERGY CHEATS NOW. <https://unlock3r.net//cf2381b>`__
 
 `CLICK HERE TO DOWNLOAD KLONDIKE ADVENTURES MOD APK latest version. <https://filesmart.net/7654256>`__
 
